@@ -1,6 +1,6 @@
 - 👋 Hi, I’m analice
 - 👀 I’m interested in em estudar
-- 🌱 I’m currently learning a me amar
+- 🌱 I’m currently learning me amar
 - 💞️ I’m looking to collaborate on não sei
 - 📫 How to reach me me mande menagem e puxe um ausunto bom
 
