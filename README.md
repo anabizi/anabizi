@@ -1,4 +1,4 @@
-- 👋 Hi, I’m analice
+- 👋 Hi, I’m Analice
 - 👀 I’m interested in em estudar
 - 🌱 I’m currently learning me amar
 - 💞️ I’m looking to collaborate on não sei
